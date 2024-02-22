@@ -3,15 +3,7 @@
 + coba
 + coba
 + coba
-+ coba
-+ coba112
-+ kkk
-+ bbbb
-+ ccc
-+ Bejo555
-+ bbii
-+ aaa
-+ llll
+
 
 
 
